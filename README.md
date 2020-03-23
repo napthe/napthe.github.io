@@ -23,4 +23,8 @@ Giá sim: 350k
 
 •	Nạp 200k trả 180k
 
-# NHẬN NẠP GARENA + K+
+•	Ngoài ra mình nhận nạp Garena, K+ Có chiết khấu.
+
+### SĐT liên hệ: 0865777073
+
+### Fb: fb.com/kien.qb
