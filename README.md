@@ -31,4 +31,4 @@ Giá sim: 350k
 
 ### SĐT liên hệ: 0865777073
 
-### Fb: [Kiên Nguyễn](fb.com/kien.qb)
+### Fb: [Kiên Nguyễn](facebook.com/kien.qb)
