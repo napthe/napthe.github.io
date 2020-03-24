@@ -29,6 +29,6 @@ Giá sim: 350k
 
 •	Ngoài ra mình nhận nạp Garena, K+ Có chiết khấu.
 
-### SĐT liên hệ: 0865777073
+### SĐT liên hệ: 0865.777.173
 
 ### Fb: [Kiên Nguyễn](facebook.com/kien.qb)
