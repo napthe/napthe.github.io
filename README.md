@@ -10,7 +10,7 @@
 
 Áp dụng trên Toàn Quốc.
 
-Giá sim: 350k
+Giá sim: 3xx
 
 🚀Ship toàn quốc.
 
