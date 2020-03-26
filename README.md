@@ -8,7 +8,7 @@
 
 •	Có thể dùng cho bộ phát wifi.
 
-•       SIM dùng gói Bl5gt của Mobifone max băng thông. Sử dụng xem Youtube full HD 1080p ở khu vực 6 bao gồm: Thanh Hoá, Nghệ An, Hà Tĩnh, Quảng Bình, Hải Dương, Yên Bái. Những ai ngoài khu vực 6 sẽ có 5GB tốc độ cao xem video 1080p. Sau khi hết GB tốc độ cao vẫn xem đc 720p. Nó chỉ hạ chút xíu thôi vẫn chiến đc web phim online, youtube 720p,.. Ngoài ra bên mình có bán SIM gói này giá 150k. Nhưng phải đăng kí hàng tháng 50k(miễn phí tháng đầu tiên).
+•       SIM dùng gói Bl5gt của Mobifone max dung lượng. Sử dụng xem Youtube full HD 1080p ở khu vực 6 bao gồm: Thanh Hoá, Nghệ An, Hà Tĩnh, Quảng Bình, Hải Dương, Yên Bái. Những ai ngoài khu vực 6 sẽ có 5GB tốc độ cao xem video 1080p. Sau khi hết GB tốc độ cao vẫn xem đc 720p. Nó chỉ hạ chút xíu thôi vẫn chiến đc web phim online, youtube 720p,.. Ngoài ra bên mình có bán SIM gói này giá 150k. Nhưng phải đăng kí hàng tháng 50k(miễn phí tháng đầu tiên).
 TRƯỚC KHI MUA CÁC BẠN NÊN CHECK XEM Ở KHU VỰC ĐANG SỐNG. XEM SÓNG DATA MOBIFONE CÓ KHOẺ HAY KHÔNG RỒI MUA NHÉ. KHÔNG MUA VỀ SÓNG YẾU LẠI MẤT CÔNG. XIN CẢM ƠN!
 
 Áp dụng trên Toàn Quốc.
